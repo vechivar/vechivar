@@ -1,3 +1,5 @@
 I'm currently a student programer at Zone01 Rouen, and I'm using this account to share some projects I've been doing during my cursus. Most of the projects here are posted after they have been validated by Zone01 community, and shared with their defaults and qualities. I'm usually trying to show some work I've found interesting and/or enriching, rather than showing some perfectly polished projects. Most of the work realised during my cursus is not available here though.
 
 Actuellement étudiant développeur à Zone01 Rouen, j'utilise ce compte pour partager des projets que j'ai réalisés durant mon cursus. La plupart de ces projets sont postés après avoir été validés par la communauté de Zone01, et sont partagés avec leurs qualités et leurs défauts. J'essaye en général de partager des travaux que j'ai trouvés intéressants et/ou enrichissants, plutôt que d'essayer de montrer des projets parfaitements aboutis. La plupart des travaux réalisés durant mon cursus ne sont cependant pas disponibles ici.
+
+https://linkedin.com/in/valentin-echivard-2686032b8
